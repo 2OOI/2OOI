@@ -1,6 +1,6 @@
 <div align="center">
   
-**successfully stalking my ex-partner account and her disgusting group of cp-liker groomers with daddy issues and hypocrite fat jokes.**
+**go follow my main for cool yapping classes** 
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/txt6.gif" width="270">
 
