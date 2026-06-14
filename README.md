@@ -1,6 +1,6 @@
 <div align="center">
   
-**go follow my main for cool yapping classes** 
+**TCC members iwec but not fully DNI because I say so** 
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/txt6.gif" width="270">
 
