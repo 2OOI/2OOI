@@ -1,6 +1,6 @@
 <div align="center">
   
-**how skibidi toilet porn ruined my life** /𝐑𝐄𝐅
+**not in the best mood for fat jokes**
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/txt6.gif" width="270">
 
