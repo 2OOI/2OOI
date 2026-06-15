@@ -1,6 +1,6 @@
 <div align="center">
   
-**not in the best mood for fat jokes**
+**"he loved you so much bro"** I do too
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/txt6.gif" width="270">
 
